@@ -1,6 +1,10 @@
-### Hi there 👋
+### LUIZ CARLOS👋
+GOSTO SE JOGAR FUTEBOL😄
 
-<!--
+NÃO GOSTO DE ESTUDAR 🤔
+
+SOU OBRIGADO A VIM PRA ESCOLA 💬
+
 **silva1404/silva1404** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
